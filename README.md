@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Junior Web Developer <br>🏆💙PERSIB BANDUNG💙🏆
+🏆💙PERSIB BANDUNG💙🏆
 
 
 ## 🌐 Socials:
